@@ -1,0 +1,2 @@
+# premium-raising-bowl-001-bowl-raising-planishing-silv
+Tired of uneven bowl walls and hammer marks ruining your silversmith projects? Master the seamless transition from raising to planishing with a structured studio approach.  This studio is the only resource that integrates both raising and planishing into a single, cohesive workflow, eliminating guesswork and wasted metal. You'll learn to shape grac
